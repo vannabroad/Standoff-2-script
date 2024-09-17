@@ -1,4 +1,4 @@
-# Working cheats for Standoff 2 [0.29.1]
+# Working cheats for Standoff 2 [0.30.0]
 Free and working cheat mods for the popular online game Standoff 2. To become the best in this game, you just need persistence. In this guide, we will tell you in detail how to become a cheater in Standoff 2 on your phone.
 
 Standoff 2 is a shooter that will appeal to all fans of CS:GO. The game is very similar to this bestseller, but it is not without its own uniqueness! As in any mobile multiplayer project, cheating is not allowed here. However, we have a method with which you can use codes!
